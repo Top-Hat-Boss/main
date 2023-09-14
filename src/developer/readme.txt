@@ -1,1 +1,1 @@
-my offer still stand
+my offer still stands
